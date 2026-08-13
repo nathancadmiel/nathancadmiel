@@ -1,4 +1,4 @@
-## 👋 Natan Cadmiel | 💻 Estudante de Análise e Desenvolvimento de Sistemas | 🇧🇷 Brasil - BA - PT/EN
+## Natan Cadmiel | 💻 Estudante de Análise e Desenvolvimento de Sistemas | Brasil - BA - PT/EN
 
 ---
 
